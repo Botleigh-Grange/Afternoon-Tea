@@ -2,5 +2,5 @@
 
 <H2>Curry</H2>
     
-<p>every Thursday</p>
+<p>every Monday</p>
 
