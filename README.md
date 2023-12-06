@@ -5,9 +5,9 @@
 # **Afternoon tea**
 
 
-*£23.99 per person for adults*
+***£23.99*** per person for adults
 
-*£12.99 per person for Child under 12*
+***£12.99*** per person for Child <ins>**under 12**</ins>
 
 ***to Book:*** 
 
