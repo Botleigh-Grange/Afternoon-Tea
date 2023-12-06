@@ -18,12 +18,12 @@
 
 ***to Book:*** 
 
-call: 02382 516 797
+<ins>**call**</ins>: 02382 516 797
 
-Email: Reception@botleigh-Grange.com
+<ins>**Email**</ins>: Reception@botleigh-Grange.com
 
 
-# *** ***please provide at least 24hr notice*** ***
+# *** ***Please provide at least 24hr notice*** ***
 
 
 # <ins>***Xmas menu 🎄***</ins>
