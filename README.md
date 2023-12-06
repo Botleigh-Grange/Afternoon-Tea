@@ -25,6 +25,10 @@
 
 # *** ***Please provide at least 24hr notice*** ***
 
+# <ins>***Regular Menu***</ins>
+
+![image](https://github.com/Botleigh-Grange/Afternoon-Tea/assets/151997230/865c0066-c096-4461-bd99-542c711745d1)
+
 
 # <ins>***Xmas menu 🎄***</ins>
 
