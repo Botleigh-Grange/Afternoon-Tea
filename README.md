@@ -18,7 +18,7 @@
 
 ***£12.99*** per person for Child <ins>**under 12**</ins>
 
-***To Book:*** 
+## ***To Book:*** 
 
 <ins>**Call 📞**</ins>: 02382 516 797
 
