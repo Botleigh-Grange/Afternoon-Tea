@@ -1,9 +1,9 @@
-> Afternoon.Tea                                                                                         [◄  Back to Home page](https://botleigh-grange.github.io/Home/)
-                                                              
+Afternoon tea
+[◄  Back to Home page](https://botleigh-grange.github.io/Home/)
 
 
 
-
+# **Afternoon tea ☕**
 
 > ## <ins>***Regular Menu***</ins>
 
@@ -36,3 +36,6 @@
 # <ins>***Xmas menu 🎄***</ins>
 
 ![image](https://github.com/Botleigh-Grange/Menus/assets/151997230/a82b800b-49ce-44e7-b220-e9cfa6d95c1d)
+
+
+
